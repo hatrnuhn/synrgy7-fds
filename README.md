@@ -1,1 +1,0 @@
-# synrgy7-fds
